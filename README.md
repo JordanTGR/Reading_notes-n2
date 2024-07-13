@@ -10,4 +10,5 @@ Se menciona dos situaciones la mentalidad fija y de crecimiento, en cual nos ubi
 ![Pensamiento](https://lcpsicologos.com/wp-content/uploads/42233113_l.png)
 ### Aporte
 Considerar que hay algunos libros para poder abordar y complentar, sobre todo para refelexionar considero uno el siguiente.
+
 ![Principito](https://covers.storytel.com/jpg-640/9783986770501.17806f10-e56f-49e0-a54f-bb58c0ea6f25?optimize=high&quality=70)
